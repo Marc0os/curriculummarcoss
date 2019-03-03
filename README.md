@@ -1,1 +1,0 @@
-# https://curriculummarcoss.github.io
